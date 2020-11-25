@@ -6,3 +6,6 @@ no matter how it is the reason
 
 
 good decision of your life and it is the best teaching of your life
+
+
+it does not move on the priopity
